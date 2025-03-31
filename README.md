@@ -1,1 +1,0 @@
-# Zararl--Url-Tespiti-
